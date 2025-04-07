@@ -2,7 +2,7 @@
 - 👀 J'ai 21 ans
 - 🌱 Je vis a Montpellier
 - 💞️ J'ai deux chatons
-- 📫 Je cherche a m'epanouir au travail
+- 📫 J'aime le taff
 - ⚡ Fun fact: Je suis multifonction
 
 <!---
